@@ -1,0 +1,1 @@
+# Scademy-AI-Fundamentals
